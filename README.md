@@ -1,4 +1,4 @@
-##Product Catalog
+Product Catalog
 
 Our company offers a range of products to the users for a variety of applications and necessities, you can buy any of the products listed below for your personal use.
 1. Mach Ultra Razor: Razor for Best Trimming and Shaving for Men
